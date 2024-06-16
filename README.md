@@ -1,1 +1,1 @@
-From Neuroscience to AI and Robotics, determined to understand intelligence.
+From Neuroscience to AI and Robotics, determined to develop intelligence.
